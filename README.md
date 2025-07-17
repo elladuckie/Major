@@ -1,1 +1,1 @@
-# Major
+# Majer
